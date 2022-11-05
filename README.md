@@ -1,1 +1,0 @@
-# patikaproje3
